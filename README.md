@@ -1,0 +1,2 @@
+# Sakti
+Luar biasa
